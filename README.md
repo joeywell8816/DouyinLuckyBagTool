@@ -19,3 +19,5 @@ Thank you for your support.
 本软件严禁用于任何非法用途。
 
 感谢您的支持。
+
+TG：https://t.me/+xVeuS-nZjWw2ZDNl
